@@ -1,0 +1,5 @@
+# CURSO-SEP-DIC-MIERCOLES
+Este repositorio es para el ejercicio del curso
+PAMELA SHERLIN SILVA VARGAS
+HANNIA DAMARIS RAMOS PEÑAFORT
+
